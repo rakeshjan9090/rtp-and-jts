@@ -45,6 +45,5 @@ You can easily **Ertiga for rent in Jaipur** on our site or Jaipur Taxi Service 
 - Full day or half day trips at affordable prices.
 - Pick up and doorstep service in Jaipur.
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE1MTcxMzI3OTIsLTEwNTYzODU0NTYsLT
-EyNDcxMjgwNTUsLTEyNjM0MTc2NThdfQ==
+eyJoaXN0b3J5IjpbLTE1MTcxMzI3OTJdfQ==
 -->
