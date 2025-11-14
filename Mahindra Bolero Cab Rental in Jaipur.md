@@ -26,7 +26,9 @@ Weekend Break Getaways and Holiday Tours
 
 Book your Mahindra Bolero taxicab in Jaipur Currently:
 Traveling successfully at Jaipur Taxi Service is enjoyable and cost-effective. Our SUV Cab Rental Jaipur line including the Mahindra Bolero is meant to enrich your traveling with appropriate, room and reliability. Whether you need Jaipur Bolero ride service for a short trip or a long route, we assure safety, preparedness and complete satisfaction. Book online Now and enjoy the best Mahindra Bolero taxi rental in Jaipur at reliable service and affordable cost.
+
+### Charges for Maruti Ertiga Cab Rental in Jaipur
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTcwNjA5NzY5OSwtMjA4ODc0NjYxMiw3Mz
+eyJoaXN0b3J5IjpbLTI3MTk1Njk1NiwtMjA4ODc0NjYxMiw3Mz
 A5OTgxMTZdfQ==
 -->
